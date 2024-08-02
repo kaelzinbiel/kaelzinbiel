@@ -1,2 +1,2 @@
-oi eu sou lindo🥰🥰🥰🥰🥰🥰🥰🥰🥰
-![](https://media.tenor.com/BaEODLhSQeIAAAAi/cora%C3%A7%C3%A3o.gif)
+oi, eu sou o kael e amo o flamengo 🥰🥰
+![](https://media.tenor.com/nD0r3XEYcY8AAAAi/mengao.gif)
